@@ -1,1 +1,0 @@
-# Checkpoint-Operations-Governance-Risk-Management
